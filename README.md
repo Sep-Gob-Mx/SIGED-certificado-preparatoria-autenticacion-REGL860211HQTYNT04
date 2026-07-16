@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-REGL860211HQTYNT04
+REGL860211HQTYNT04
